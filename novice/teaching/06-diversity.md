@@ -1,6 +1,7 @@
-Matt Davis and Kara Woo:
+Allyship Tips
+=============
 
-*Allyship tips*
+By Kara Woo and Matt Davis:
 
 * Listen. When people talk about their lives and experiences, take them seriously. They are the experts.
 * Do your homework; don’t expect others to educate you. Some people may be happy to do this, but you are not entitled to it. Many, many people have written on diversity issues — it’s not hard to find information.
@@ -11,7 +12,8 @@ Matt Davis and Kara Woo:
 * Don’t center your own feelings. If you get called out or feel wounded by someone else’s tone, go back to point #1.
 * Remember that “ally” isn’t a static identity, nor is it a label you get to claim for yourself. Allyship is a process, and you’re not an ally just because you say you are. Do the hard work of being an ally, and don’t expect to be thanked or acknowledged every time (or even most of the time).
 
-----------------------------------------
+References
+==========
 
 Meghan Duffy:
 
